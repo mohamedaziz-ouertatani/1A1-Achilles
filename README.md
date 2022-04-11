@@ -5,10 +5,10 @@ Made by:
 
 Mohamed Aziz Ouertatani
 
-Nadine Zayen 
+Nadine Zayene
 
 Yousef Kharroubi 
 
 Sarra Boujday
 
-Rania Soueai 
+Rania Souei 
